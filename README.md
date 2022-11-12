@@ -1,7 +1,7 @@
-- 👋 Hola  @ArashiStudios
+- 👋 Hola  @Panda Studios
 - 👀 Estas interezado ser colaborador o Alguna persona . como personal del studio ? 
-- 🌱 Andamos en dessarrollo nuestra aplincancion !! 
-- 💞️ I’m looking to collaborate on ...
+- 🌱 Tenemos un Laucher Privado 
+- 💞️ Quieres Colaboracion ? Bueno Para Hacerlo Te puedes Unirte al discord
 - 📫 Nuestro Foro e discord : https://discord.gg/K8gdHKhV4P
 
 <!---
